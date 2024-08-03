@@ -1,1 +1,1 @@
-![Spot(13)](https://github.com/BynexME/.github/assets/92170476/bb27229b-97f5-4265-907f-6df462eb3ca0)
+![Spot](https://github.com/user-attachments/assets/dcf2a8eb-4fb1-4c17-b580-7c346ec5df57)
