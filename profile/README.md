@@ -1,1 +1,1 @@
-![Spot](https://github.com/user-attachments/assets/c0dca95f-d1ec-4cd1-8b02-9b7b05cb7c63)
+![Spot](https://github.com/user-attachments/assets/86e6d2fe-d85c-4326-ac70-4c01a9b9825a)
